@@ -1,12 +1,2 @@
-- 👋 Hi, I’m @smarteditor
-- 👀 welcome 🤗
-- 🌱 Follow us on
-- 💞️ TikTok =Smart Editor 
-- 📫 YouTube =Smart Editor
-- 😄 Telegram=Smart Editor 
-- 
-
-<!---
-smarteditor/smarteditor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+👋🏻 WELCOME 🤗 FOLLOW US ON TIKTOK ➪https://vm.tiktok.com/ZMSYVhbcg/
+➪𝐘𝐎𝐔𝐓𝐔𝐁𝐄☞︎︎︎https://www.youtube.com/@Smart_Editor_1    ➪𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌☞︎︎︎https://t.me/Smart_Editor1
